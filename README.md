@@ -1,2 +1,1 @@
-# fuzzy-adventure
-https://github.com/akkirocks/Ashish-Kumar-Pandey.wiki.gitWelcome
+Ashish kumar pandey, azop, food delivery 
